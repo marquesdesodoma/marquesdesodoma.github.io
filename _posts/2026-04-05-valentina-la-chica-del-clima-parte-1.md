@@ -32,8 +32,6 @@ Durante la universidad, casi todos conocian a Valentina como "La Nalgas de Oro",
 
 Y sin embargo, yo… yo soy el afortunado que puede hacerlo. Al menos, por ahora.
 
-Y sin embargo, yo… yo soy el afortunado que puede hacerlo. Al menos, por ahora.
-
 Esa noche la observaba desde la cama mientras se vestía para la fiesta de aniversario de OroTV.
 
 Valentina estaba de espaldas a mi, completamente desnuda. Se inclinó ligeramente para subir la tanga negra por sus gruesos y bien definidos muslos. La tela se extinguió completamente entre sus cachetes como si nunca hubiera existido. Luego, tomó el vestido negro elegante que habia elegido para la ocasión. 
