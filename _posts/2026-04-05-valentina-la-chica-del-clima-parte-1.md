@@ -60,7 +60,7 @@ Asentí, aunque algo dentro de mí se removió incómodo al escuchar el nombre d
 
 Ella se incorporó, se dio la vuelta y caminó hacia el espejo otra vez. Se acomodó el vestido tirando un poco de la tela hacia abajo, pero fue inútil: ese culo seguía escapándose por los lados, provocador, casi indecente.
 
-![Desktop View](/assets/2026-04-05-valentina-la-chica-del-clima-parte-1/CofQp.jpg){: width="500" height="200" }
+![Desktop View](/assets/2026-04-05-valentina-la-chica-del-clima-parte-1/0gDYs.jpg){: width="500" height="200" }
 
 Y yo no podía dejar de mirarlo.
 
