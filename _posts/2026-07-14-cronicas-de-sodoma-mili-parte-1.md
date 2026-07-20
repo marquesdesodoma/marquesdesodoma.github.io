@@ -214,4 +214,46 @@ No lo podía creer, prácticamente me estaba pidiendo que le hiciera una demostr
 
 —Si, tengo una en mi cajón... repuse intentando serenarme.
 
+—¿Qué estoy diciendo?... dijo como arrepintiéndose, luego repuso... Y como, ¿Cómo seria?, ya, bueno, digamos que a manera de prueba, dejo que hagas todo lo que has dicho, porque alguna vez tengo que hacerlo... mira que si dices algo te mato... en fin, ¿Cómo seria?... mejor termina de explicarme... dijo nerviosa.
+
+Era obvio que Mili estaba súper-excitada por lo que le describí. En este momento no podía dejarme ganar por mi ansiedad y abalanzarme sobre ella o espantarla de otra forma. Si quería disfrutar de su estrecho ano y tener su enorme culo entre mis manos, tenia que calmarme... tenia que darle el puntillazo final para que ella cayera y no dudara en dejarme proceder...
+
+—Como tu anito estaría completamente lubricado y flexible, mi pene también untado con gel, se deslizaría sin mayor oposición, claro que lo metería de a pocos... considerando que mi pene no es tan grueso, tu anito sufriría menos... a decir verdad, seria mejor que un pene delgado ayude a dilatar tu esfínter...
+
+—Si, si tienes razón... Javier la tiene gorda y si, si lo dejo a él... me va romper toda, ese loco desesperado... pero, ¿puedo?...
+
+—¿Puedo verla?... muéstramela... no vaya a ser que yo acepte y resulte que tienes un pene mas grueso... dijo con cierta excitación, era obvio que había descubierto mi erección y eso la había calentado mas aun.
+
+Con nerviosismo me desabotone el pantalón, casi disparada salió la cabeza de mi pene, ella se encargo de sacar el resto.
+
+![Desktop View](/assets/2026-07-14-cronicas-de-sodoma-mili-parte-1/2036050844012168617-0.png)
+
+—Vaya, ¡Si es más larga!, un poco más delgada, ¡Pero no tanto!... exclamo sorprendida.
+
+Creí que se arrepentiría, maldije mi infortunio: Será otra paja mas... pensé... pero no fue así, Mili llego al punto en que no hay marcha atrás, su conchita debía estar empapada. Disimuladamente sobaba su entrepierna intentando acallar esa picazón que incrementaba en sus intimidades...
+
+—No importa, tengo que saber como es, si no es ahora, nunca... dijo como justificándose.
+
+No creo que sienta gran remordimiento por serle infiel al aventurero de Javier, que conociéndolo, le habría puesto los cuernos a Mili más de una vez, buscando refugio en sus amigas cariñosas cada vez que Mili le negaba su culito. Yo no me sentía tan culpable, después de que adiestrara el ano de Mili, seria Javier quien disfrutaría de todo el sexo anal que quisiera con ese enorme trasero. Al fin y al cabo el saldría ganador, así que digamos que le estaba haciendo un favor...
+
+—¿Dónde esta la crema?... pregunto con ansiedad
+
+—¿Ah?, ¡Oh!, si, si... por acá la tengo…
+
+Con el pantalón que se me caía busque en mi mesa de noche. Tenia una provisión de crema para cuando desvirgara el culito de mi enamorada... fugazmente pensé en ella, pero hombre y débil al fin, ante la posibilidad que se presenta una vez en la vida... no me iba hacer para atrás... imagínense a J-Lo en su dormitorio, desnuda, en la pose del perrito, pidiéndoles, casi rogándoles que se le metan por el culo... ¿Uds. se negarían?... si dicen que si y no están mintiendo, los felicito... por que yo no podría negarme...
+
+Ella se paseaba nerviosa, mientras yo más nervioso aun buscaba el gel... hasta que al fin lo encontré... Mili se dio cuenta, y sin tener que decirle nada se fue acomodando en mi cama:
+
+—Ay no se... ¿Cómo me coloco?... pregunto nerviosa.
+
+![Desktop View](/assets/2026-07-14-cronicas-de-sodoma-mili-parte-1/2036063227945371287-53.png)
+
+—Es mejor que te pongas en cuatro... le dije tragando saliva.
+
+Obedientemente se ubico como una perrita ansiosa, arrodillándose en la cama primero y luego inclinándose hacia delante hasta que su cabeza toco el colchón, sus codos apoyados en la cama cubrían su rostro. Sentiría un poco de vergüenza o tal vez no quería que su cara delatara su ansiedad... la observe por unos segundos, aunque su posición no era como la había imaginado porque su espalda formaba una joroba, aun así era una imagen digna de recordar.
+
+![Desktop View](/assets/2026-07-14-cronicas-de-sodoma-mili-parte-1/2036062369318539686-3.png)
+
+Mili un poco impaciente no sabia si bajarse el pantalón deportivo o dejar que yo lo hiciera, su mano nerviosa hizo más de una vez el ademán de querer hacerlo, pero no se atrevía. Así que yo, lentamente fui descubriendo el objeto del deseo de muchos. Ante mi fue apareciendo un bronceado y carnoso trasero, de solo verlo casi se me sale toda la leche, mas aun observando la diminuta tanga negra que desaparecía entre sus abultadas nalgas... me quede sin aliento.
+
 **Disclaimer:** La autoría de este relato corresponde a su autor original, AdrianReload, a quien considero un excelente escritor. Mili es una de mis historias favoritas, mi aportación a esta edición consiste exclusivamente en las ilustraciones, creadas para acompañar y disfrutar mejor la experiencia de lectura. 
